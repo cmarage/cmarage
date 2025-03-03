@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning everything
 - 💞️ I’m looking to collaborate on all platforms
 - 📫 How to reach me ...
-- 😄 Pronouns: He/Him
+- 😄 Pronouns: He/Him/His
 - ⚡ Fun fact: ...
 
 <!---
